@@ -75,7 +75,7 @@
 ### About us
 
 1. We are wholesale seller on ebay, and we **accept the batch order**, welcome your inquiry from ebay！
-2. More riflescope is on pushing..
+2. We now have 3-9X40, 4-12X44, 3-12X56, 1-6X24 on sale. More riflescope is on pushing..
 3. If you have any questions, please feel free to email our service specialists 24 Hours a Day, We will reply you ASAP. If no response within 24 Hours, please check the spam in your mail box. 
 4. Our aim is to provide Top Level Customer Service, so we will try our best to solve any problem.
 5. We greatly appreciate your POSITIVE feedback. Our system will automatically leave you very good feedback after your payment completed.
